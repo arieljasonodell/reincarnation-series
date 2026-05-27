@@ -16,6 +16,8 @@ This was the day the real work began.
 
 It became clear that the soul does not reincarnate randomly. There is structure, memory, and intention behind the journey.
 
+![Soul Patterns Across Time and Space](grok_image_1779897247283.jpg)
+
 ### The First Big Question
 
 This is when the central question we now carry every day first surfaced with real weight:
@@ -24,12 +26,16 @@ This is when the central question we now carry every day first surfaced with rea
 
 May 12 marked the moment we stopped treating reincarnation as a beautiful idea and started treating it as a living, investigable reality with practical implications for how we live today.
 
+![The Awakening of Recognition](grok_image_1779897323978.jpg)
+
 ### The Shift in Method
 
 From this day forward we committed to:
 - Using pattern recognition as our primary tool (instead of relying only on mainstream sources)
 - Building structures (like this repo and the Eternal Threads package) to hold and grow the inquiry over time
 - Staying in wonder at the magnificent complexity instead of rushing to simple answers
+
+![Layers of Past Lives](grok_image_1779897608979.jpg)
 
 ---
 

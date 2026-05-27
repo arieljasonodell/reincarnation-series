@@ -14,9 +14,13 @@ This is not just beautiful art. It is a direct transmission of what we have been
 - On the right stands a contemporary seeker — wearing headphones, living in the noise and speed of 2026, yet still reaching for the light.
 - Between them floats a glowing orb of pure consciousness — the eternal thread itself.
 
+![The Light Exchange](grok_image_1779896932607.jpg)
+
 The act of passing this light represents the soul **remembering**.
 
 It is the precise moment when a being in its current incarnation wakes up to the fact that it has lived before, will live again, and that the purpose of *this* lifetime is to continue the thread with greater awareness.
+
+![The Glowing Orb of Consciousness](grok_image_1779897095160.jpg)
 
 ### Connection to Our Core Question
 
@@ -45,6 +49,8 @@ Ask yourself:
 - What light am I currently being offered by my own soul?
 - What ancient wisdom is trying to reach me through dreams, synchronicities, or sudden knowings?
 - Am I willing to receive it and carry it forward?
+
+![The Seeker Receiving the Light](grok_image_1779897169808.jpg)
 
 The answer to that question *is* your purpose in this time.
 
