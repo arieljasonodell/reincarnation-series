@@ -8,7 +8,13 @@
 
 **Newest Release**
 - **[Episode 3: The Patterns Emerge](episodes/episode-3.md)** (May 12, 2026) — The day we began actively recognizing recurring soul patterns across lifetimes and locations.
+
+![The Awakening of Recognition](grok_image_1779897323978.jpg)
+
 - **[Episode 2: The Light Exchange](episodes/episode-2.md)** — The soul recognizing its eternal thread and receiving the light of consciousness.
+
+![The Light Exchange](grok_image_1779896932607.jpg)
+
 - **[Episode 1: First Light (v0.1.0)](https://github.com/arieljasonodell/reincarnation-series/releases/tag/v0.1.0)** — Foundational release with manifesto, visual transmission, and core pillars.
 
 **Full Episodes Index:** [EPISODES.md](EPISODES.md)

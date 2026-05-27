@@ -21,6 +21,8 @@ The foundational release. Includes the project manifesto, visual transmission (c
 
 The moment the soul in its current incarnation recognizes the eternal thread and receives the light of consciousness from its own past and future selves.
 
+![The Light Exchange](grok_image_1779896932607.jpg)
+
 **File**: [episodes/episode-2.md](episodes/episode-2.md)
 
 ---
@@ -30,10 +32,12 @@ The moment the soul in its current incarnation recognizes the eternal thread and
 
 The day the real work began. The shift from discussing reincarnation as an idea to actively recognizing patterns across lifetimes, locations, and synchronicities.
 
+![The Awakening of Recognition](grok_image_1779897323978.jpg)
+
 **File**: [episodes/episode-3.md](episodes/episode-3.md)
 
 ---
 
 *More episodes will be added here as we continue the journey.*
 
-*Last updated: May 26, 2026*
+*Last updated: May 27, 2026*
