@@ -17,11 +17,20 @@ The foundational release. Includes the project manifesto, visual transmission (c
 ---
 
 ## Episode 2: The Light Exchange
-**Status**: Ready to release
+**Released**: May 26, 2026
 
-The moment the soul in its current incarnation recognizes the eternal thread and receives the light of consciousness from its own past and future selves. A deep exploration of the central scene in the cosmic mandala.
+The moment the soul in its current incarnation recognizes the eternal thread and receives the light of consciousness from its own past and future selves.
 
 **File**: [episodes/episode-2.md](episodes/episode-2.md)
+
+---
+
+## Episode 3: The Patterns Emerge
+**Released**: May 26, 2026 (content from May 12, 2026)
+
+The day the real work began. The shift from discussing reincarnation as an idea to actively recognizing patterns across lifetimes, locations, and synchronicities.
+
+**File**: [episodes/episode-3.md](episodes/episode-3.md)
 
 ---
 
