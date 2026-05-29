@@ -38,6 +38,15 @@ The day the real work began. The shift from discussing reincarnation as an idea 
 
 ---
 
+## Episode 4: The Geography of the Soul
+**Released**: May 27, 2026
+
+Exploring Geographic Echoes and Soul Homes — how certain places on Earth call specific souls back across multiple lifetimes, and what this reveals about purpose.
+
+**File**: [episodes/episode-4.md](episodes/episode-4.md)
+
+---
+
 *More episodes will be added here as we continue the journey.*
 
 *Last updated: May 27, 2026*
