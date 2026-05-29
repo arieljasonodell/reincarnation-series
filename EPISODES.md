@@ -47,6 +47,15 @@ Exploring Geographic Echoes and Soul Homes — how certain places on Earth call 
 
 ---
 
+## Episode 5: The Mirror of This Lifetime
+**Released**: May 29, 2026
+
+How our current life circumstances, relationships, challenges, and gifts often reflect patterns from past incarnations — and how recognizing this mirror reveals our purpose right now.
+
+**File**: [episodes/episode-5.md](episodes/episode-5.md)
+
+---
+
 *More episodes will be added here as we continue the journey.*
 
-*Last updated: May 27, 2026*
+*Last updated: May 29, 2026*
