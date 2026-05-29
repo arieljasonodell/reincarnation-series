@@ -7,15 +7,43 @@
 ## Latest Episodes
 
 **Newest Release**
-- **[Episode 3: The Patterns Emerge](episodes/episode-3.md)** (May 12, 2026) — The day we began actively recognizing recurring soul patterns across lifetimes and locations.
+
+### Episode 5: The Mirror of This Lifetime (May 29, 2026)
+How our current life circumstances, relationships, challenges, and gifts often reflect patterns from past incarnations — and how recognizing this mirror reveals our purpose right now.
+
+**File**: [episodes/episode-5.md](episodes/episode-5.md)
+
+---
+
+### Episode 4: The Geography of the Soul (May 27, 2026)
+Exploring Geographic Echoes and Soul Homes — how certain places on Earth call specific souls back across multiple lifetimes, and what this reveals about purpose.
+
+**File**: [episodes/episode-4.md](episodes/episode-4.md)
+
+---
+
+### Episode 3: The Patterns Emerge (May 12, 2026)
+The day we began actively recognizing recurring soul patterns across lifetimes and locations.
 
 ![The Awakening of Recognition](grok_image_1779897323978.jpg)
 
-- **[Episode 2: The Light Exchange](episodes/episode-2.md)** — The soul recognizing its eternal thread and receiving the light of consciousness.
+**File**: [episodes/episode-3.md](episodes/episode-3.md)
+
+---
+
+### Episode 2: The Light Exchange (May 26, 2026)
+The soul recognizing its eternal thread and receiving the light of consciousness.
 
 ![The Light Exchange](grok_image_1779896932607.jpg)
 
-- **[Episode 1: First Light (v0.1.0)](https://github.com/arieljasonodell/reincarnation-series/releases/tag/v0.1.0)** — Foundational release with manifesto, visual transmission, and core pillars.
+**File**: [episodes/episode-2.md](episodes/episode-2.md)
+
+---
+
+### Episode 1: First Light (v0.1.0)
+Foundational release with manifesto, visual transmission, and core pillars.
+
+**GitHub Release**: [v0.1.0](https://github.com/arieljasonodell/reincarnation-series/releases/tag/v0.1.0)
 
 **Full Episodes Index:** [EPISODES.md](EPISODES.md)
 
