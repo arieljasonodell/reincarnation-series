@@ -56,6 +56,15 @@ How our current life circumstances, relationships, challenges, and gifts often r
 
 ---
 
+## Episode 6: Threads of Purpose in Turbulent Times
+**Released**: May 30, 2026
+
+Exploring why so many souls chose this era of rapid change and awakening. Patterns of collective purpose, the compression of learning, and the role of pattern recognition in navigating the crucible.
+
+**File**: [episodes/episode-6.md](episodes/episode-6.md)
+
+---
+
 *More episodes will be added here as we continue the journey.*
 
-*Last updated: May 29, 2026*
+*Last updated: May 30, 2026*
