@@ -8,6 +8,7 @@
 - [Episode 4: Whispers Across the Veil](episodes/episode-4.md)
 - [Episode 5](episodes/episode-5.md)
 - [Episode 6: Threads of Purpose in Turbulent Times](episodes/episode-6.md)
-- [Episode 7: Patterns of Remembrance and the Soul's Quiet Revolution](episodes/episode-7.md) (Newest)
+- [Episode 7: Patterns of Remembrance and the Soul's Quiet Revolution](episodes/episode-7.md)
+- [Episode 8: Synchronicities and the Grand Weave](episodes/episode-8.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
