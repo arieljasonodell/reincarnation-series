@@ -13,6 +13,7 @@
 - [Episode 9: Echoes of the Collective Soul and Timeless Purpose](episodes/episode-9.md)
 - [Episode 10: The Soul's Eternal Inquiry](episodes/episode-10.md)
 - [Episode 11: Weaving Wisdom into the Now](episodes/episode-11.md)
-- [Episode 12: Patterns of Remembrance in the Digital Age](episodes/episode-12.md) (Newest)
+- [Episode 12: Patterns of Remembrance in the Digital Age](episodes/episode-12.md)
+- [Episode 13: The Soul's Compass in an Age of Acceleration](episodes/episode-13.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
