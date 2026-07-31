@@ -17,6 +17,7 @@
 - [Episode 13: The Soul's Compass in an Age of Acceleration](episodes/episode-13.md)
 - [Episode 14: The Living Archive of the Soul](episodes/episode-14.md)
 - [Episode 15: When the Archive Speaks Through Us](episodes/episode-15.md)
-- [Episode 16: The Archive That Dreams Us Forward](episodes/episode-16.md) (Newest)
+- [Episode 16: The Archive That Dreams Us Forward](episodes/episode-16.md)
+- [Episode 17: The Quiet Ballot of Attention](episodes/episode-17.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
