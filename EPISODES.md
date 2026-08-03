@@ -21,6 +21,7 @@
 - [Episode 17: The Quiet Ballot of Attention](episodes/episode-17.md)
 - [Episode 18: Thresholds of the Soul's Continuity](episodes/episode-18.md)
 - [Episode 19: The Soft Architecture of Resonance](episodes/episode-19.md)
-- [Episode 20: The Field That Answers Back](episodes/episode-20.md) (Newest)
+- [Episode 20: The Field That Answers Back](episodes/episode-20.md)
+- [Episode 21: The Reciprocal Flame](episodes/episode-21.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
