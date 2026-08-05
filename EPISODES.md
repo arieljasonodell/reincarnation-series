@@ -24,6 +24,7 @@
 - [Episode 20: The Field That Answers Back](episodes/episode-20.md)
 - [Episode 21: The Reciprocal Flame](episodes/episode-21.md)
 - [Episode 22: The Living Compass of the Flame](episodes/episode-22.md)
-- [Episode 23: The Path That Walks With Us](episodes/episode-23.md) (Newest)
+- [Episode 23: The Path That Walks With Us](episodes/episode-23.md)
+- [Episode 24: The Footprints That Light the Way](episodes/episode-24.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
