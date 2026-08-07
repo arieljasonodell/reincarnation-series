@@ -26,6 +26,7 @@
 - [Episode 22: The Living Compass of the Flame](episodes/episode-22.md)
 - [Episode 23: The Path That Walks With Us](episodes/episode-23.md)
 - [Episode 24: The Footprints That Light the Way](episodes/episode-24.md)
-- [Episode 25: The Circling Light of Shared Footprints](episodes/episode-25.md) (Newest)
+- [Episode 25: The Circling Light of Shared Footprints](episodes/episode-25.md)
+- [Episode 26: The Conversation of Circling Light](episodes/episode-26.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
