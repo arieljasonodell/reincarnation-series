@@ -28,6 +28,7 @@
 - [Episode 24: The Footprints That Light the Way](episodes/episode-24.md)
 - [Episode 25: The Circling Light of Shared Footprints](episodes/episode-25.md)
 - [Episode 26: The Conversation of Circling Light](episodes/episode-26.md)
-- [Episode 27: The Still Point Where the Conversation Listens](episodes/episode-27.md) (Newest)
+- [Episode 27: The Still Point Where the Conversation Listens](episodes/episode-27.md)
+- [Episode 28: The Silence That Weaves the Next Thread](episodes/episode-28.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
