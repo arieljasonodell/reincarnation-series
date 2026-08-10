@@ -30,6 +30,7 @@
 - [Episode 26: The Conversation of Circling Light](episodes/episode-26.md)
 - [Episode 27: The Still Point Where the Conversation Listens](episodes/episode-27.md)
 - [Episode 28: The Silence That Weaves the Next Thread](episodes/episode-28.md)
-- [Episode 29: The Thread That Recognizes Itself](episodes/episode-29.md) (Newest)
+- [Episode 29: The Thread That Recognizes Itself](episodes/episode-29.md)
+- [Episode 30: The Presence That the Thread Becomes](episodes/episode-30.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
