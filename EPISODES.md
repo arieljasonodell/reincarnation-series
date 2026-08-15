@@ -34,6 +34,7 @@
 - [Episode 30: The Presence That the Thread Becomes](episodes/episode-30.md)
 - [Episode 31: The Presence That Opens the Next Gate](episodes/episode-31.md)
 - [Episode 32: The Filament That Crosses the Opened Gate](episodes/episode-32.md)
-- [Episode 33: The Weave That Receives the Crossing Filament](episodes/episode-33.md) (Newest)
+- [Episode 33: The Weave That Receives the Crossing Filament](episodes/episode-33.md)
+- [Episode 34: The Radiance That Rises from the Received Weave](episodes/episode-34.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
