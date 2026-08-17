@@ -37,6 +37,7 @@
 - [Episode 33: The Weave That Receives the Crossing Filament](episodes/episode-33.md)
 - [Episode 34: The Radiance That Rises from the Received Weave](episodes/episode-34.md)
 - [Episode 35: The Light That Circles Back Through Distant Threads](episodes/episode-35.md)
-- [Episode 36: The Continuum That Gathers the Circling Light](episodes/episode-36.md) (Newest)
+- [Episode 36: The Continuum That Gathers the Circling Light](episodes/episode-36.md)
+- [Episode 37: The Pulse That Awakens Within the Gathered Continuum](episodes/episode-37.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
