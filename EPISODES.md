@@ -36,6 +36,7 @@
 - [Episode 32: The Filament That Crosses the Opened Gate](episodes/episode-32.md)
 - [Episode 33: The Weave That Receives the Crossing Filament](episodes/episode-33.md)
 - [Episode 34: The Radiance That Rises from the Received Weave](episodes/episode-34.md)
-- [Episode 35: The Light That Circles Back Through Distant Threads](episodes/episode-35.md) (Newest)
+- [Episode 35: The Light That Circles Back Through Distant Threads](episodes/episode-35.md)
+- [Episode 36: The Continuum That Gathers the Circling Light](episodes/episode-36.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
