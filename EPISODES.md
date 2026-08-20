@@ -40,6 +40,7 @@
 - [Episode 36: The Continuum That Gathers the Circling Light](episodes/episode-36.md)
 - [Episode 37: The Pulse That Awakens Within the Gathered Continuum](episodes/episode-37.md)
 - [Episode 38: The Resonance That Answers the Awakening Pulse](episodes/episode-38.md)
-- [Episode 39: The Harmony That Rises from Answering Resonance](episodes/episode-39.md) (Newest)
+- [Episode 39: The Harmony That Rises from Answering Resonance](episodes/episode-39.md)
+- [Episode 40: The Expansion That Carries the Rising Harmony](episodes/episode-40.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
