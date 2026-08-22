@@ -44,6 +44,7 @@
 - [Episode 40: The Expansion That Carries the Rising Harmony](episodes/episode-40.md)
 - [Episode 41: The Invitation That Travels on the Expanding Harmony](episodes/episode-41.md)
 - [Episode 42: The Gathering That Answers the Traveling Invitation](episodes/episode-42.md)
-- [Episode 43: The Continuum That Sustains the Answered Gathering](episodes/episode-43.md) (Newest)
+- [Episode 43: The Continuum That Sustains the Answered Gathering](episodes/episode-43.md)
+- [Episode 44: The Deepening That the Continuum Invites](episodes/episode-44.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
