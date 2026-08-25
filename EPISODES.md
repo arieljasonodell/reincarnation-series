@@ -46,6 +46,7 @@
 - [Episode 42: The Gathering That Answers the Traveling Invitation](episodes/episode-42.md)
 - [Episode 43: The Continuum That Sustains the Answered Gathering](episodes/episode-43.md)
 - [Episode 44: The Deepening That the Continuum Invites](episodes/episode-44.md)
-- [Episode 45: The Expression That Rises from Deepened Roots](episodes/episode-45.md) (Newest)
+- [Episode 45: The Expression That Rises from Deepened Roots](episodes/episode-45.md)
+- [Episode 46: The Offering That Expression Becomes](episodes/episode-46.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
