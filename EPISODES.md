@@ -48,6 +48,7 @@
 - [Episode 44: The Deepening That the Continuum Invites](episodes/episode-44.md)
 - [Episode 45: The Expression That Rises from Deepened Roots](episodes/episode-45.md)
 - [Episode 46: The Offering That Expression Becomes](episodes/episode-46.md)
-- [Episode 47: The Reception That Completes the Offering](episodes/episode-47.md) (Newest)
+- [Episode 47: The Reception That Completes the Offering](episodes/episode-47.md)
+- [Episode 48: The Integration That Reception Seeds](episodes/episode-48.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
