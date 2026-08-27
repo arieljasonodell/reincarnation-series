@@ -51,6 +51,7 @@
 - [Episode 47: The Reception That Completes the Offering](episodes/episode-47.md)
 - [Episode 48: The Integration That Reception Seeds](episodes/episode-48.md)
 - [Episode 49: The Emergence That Integration Nurtures](episodes/episode-49.md)
-- [Episode 50: The Form That Emergence Assumes](episodes/episode-50.md) (Newest)
+- [Episode 50: The Form That Emergence Assumes](episodes/episode-50.md)
+- [Episode 51: The Continuity That Form Extends](episodes/episode-51.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
