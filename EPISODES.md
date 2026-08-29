@@ -54,6 +54,7 @@
 - [Episode 50: The Form That Emergence Assumes](episodes/episode-50.md)
 - [Episode 51: The Continuity That Form Extends](episodes/episode-51.md)
 - [Episode 52: The Recognition That Continuity Awakens](episodes/episode-52.md)
-- [Episode 53: The Clarity That Recognition Illuminates](episodes/episode-53.md) (Newest)
+- [Episode 53: The Clarity That Recognition Illuminates](episodes/episode-53.md)
+- [Episode 54: The Embodiment That Clarity Grounds](episodes/episode-54.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
