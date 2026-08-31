@@ -57,6 +57,7 @@
 - [Episode 53: The Clarity That Recognition Illuminates](episodes/episode-53.md)
 - [Episode 54: The Way That Clarity Reveals](episodes/episode-54.md)
 - [Episode 55: The Steps That the Way Invites](episodes/episode-55.md)
-- [Episode 56: The Journey That the Steps Unfold](episodes/episode-56.md) (Newest)
+- [Episode 56: The Journey That the Steps Unfold](episodes/episode-56.md)
+- [Episode 57: The Horizon That the Journey Approaches](episodes/episode-57.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
