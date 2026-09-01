@@ -59,6 +59,7 @@
 - [Episode 55: The Steps That the Way Invites](episodes/episode-55.md)
 - [Episode 56: The Journey That the Steps Unfold](episodes/episode-56.md)
 - [Episode 57: The Horizon That the Journey Approaches](episodes/episode-57.md)
-- [Episode 58: The Crossing That the Horizon Invites](episodes/episode-58.md) (Newest)
+- [Episode 58: The Crossing That the Horizon Invites](episodes/episode-58.md)
+- [Episode 59: The Arrival That the Crossing Completes](episodes/episode-59.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
