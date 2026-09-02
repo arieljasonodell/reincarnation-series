@@ -61,6 +61,7 @@
 - [Episode 57: The Horizon That the Journey Approaches](episodes/episode-57.md)
 - [Episode 58: The Crossing That the Horizon Invites](episodes/episode-58.md)
 - [Episode 59: The Arrival That the Crossing Completes](episodes/episode-59.md)
-- [Episode 60: The Renewal That the Arrival Seeds](episodes/episode-60.md) (Newest)
+- [Episode 60: The Renewal That the Arrival Seeds](episodes/episode-60.md)
+- [Episode 61: The Spiral That the Renewal Unfurls](episodes/episode-61.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
