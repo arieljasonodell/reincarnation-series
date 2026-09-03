@@ -63,6 +63,7 @@
 - [Episode 59: The Arrival That the Crossing Completes](episodes/episode-59.md)
 - [Episode 60: The Renewal That the Arrival Seeds](episodes/episode-60.md)
 - [Episode 61: The Spiral That the Renewal Unfolds](episodes/episode-61.md)
-- [Episode 62: The Circuit That the Spiral Opens](episodes/episode-62.md) (Newest)
+- [Episode 62: The Circuit That the Spiral Opens](episodes/episode-62.md)
+- [Episode 63: The Orbit That the Circuit Completes](episodes/episode-63.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
