@@ -65,6 +65,7 @@
 - [Episode 61: The Spiral That the Renewal Unfolds](episodes/episode-61.md)
 - [Episode 62: The Circuit That the Spiral Opens](episodes/episode-62.md)
 - [Episode 63: The Orbit That the Circuit Completes](episodes/episode-63.md)
-- [Episode 64: The Stillness That the Orbit Holds](episodes/episode-64.md) (Newest)
+- [Episode 64: The Stillness That the Orbit Holds](episodes/episode-64.md)
+- [Episode 65: The Breath That the Stillness Allows](episodes/episode-65.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
