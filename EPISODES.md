@@ -67,6 +67,7 @@
 - [Episode 63: The Orbit That the Circuit Completes](episodes/episode-63.md)
 - [Episode 64: The Stillness That the Orbit Holds](episodes/episode-64.md)
 - [Episode 65: The Breath That the Stillness Allows](episodes/episode-65.md)
-- [Episode 66: The Soft Stirring That the Breath Awakens](episodes/episode-66.md) (Newest)
+- [Episode 66: The Soft Stirring That the Breath Awakens](episodes/episode-66.md)
+- [Episode 67: The Subtle Arising That the Soft Stirring Becomes](episodes/episode-67.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
