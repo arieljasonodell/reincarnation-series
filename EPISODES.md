@@ -71,6 +71,7 @@
 - [Episode 67: The Subtle Arising That the Soft Stirring Becomes](episodes/episode-67.md)
 - [Episode 68: The Luminous Presence That the Subtle Arising Becomes](episodes/episode-68.md)
 - [Episode 69: The Quiet Invitation That the Luminous Presence Extends](episodes/episode-69.md)
-- [Episode 70: The Answer That the Quiet Invitation Draws Forth](episodes/episode-70.md) (Newest)
+- [Episode 70: The Answer That the Quiet Invitation Draws Forth](episodes/episode-70.md)
+- [Episode 71: The Reciprocity That the Answer Embodies](episodes/episode-71.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
