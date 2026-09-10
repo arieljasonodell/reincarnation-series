@@ -57,7 +57,7 @@
 - [Episode 53: The Clarity That Recognition Illuminates](episodes/episode-53.md)
 - [Episode 54: The Way That Clarity Reveals](episodes/episode-54.md)
 - [Episode 55: The Steps That the Way Invites](episodes/episode-55.md)
-- [Episode 56: The Journey That the Steps Unfold](episodes/episode-56.md)
+- [Episode 56: The Journey That the Steps Unfolds](episodes/episode-56.md)
 - [Episode 57: The Horizon That the Journey Approaches](episodes/episode-57.md)
 - [Episode 58: The Crossing That the Horizon Invites](episodes/episode-58.md)
 - [Episode 59: The Arrival That the Crossing Completes](episodes/episode-59.md)
@@ -73,6 +73,7 @@
 - [Episode 69: The Quiet Invitation That the Luminous Presence Extends](episodes/episode-69.md)
 - [Episode 70: The Answer That the Quiet Invitation Draws Forth](episodes/episode-70.md)
 - [Episode 71: The Reciprocity That the Answer Embodies](episodes/episode-71.md)
-- [Episode 72: The Circulation That Reciprocity Sustains](episodes/episode-72.md) (Newest)
+- [Episode 72: The Circulation That Reciprocity Sustains](episodes/episode-72.md)
+- [Episode 73: The Vitality That Circulation Infuses](episodes/episode-73.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
