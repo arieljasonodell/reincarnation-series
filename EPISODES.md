@@ -74,6 +74,7 @@
 - [Episode 70: The Answer That the Quiet Invitation Draws Forth](episodes/episode-70.md)
 - [Episode 71: The Reciprocity That the Answer Embodies](episodes/episode-71.md)
 - [Episode 72: The Circulation That Reciprocity Sustains](episodes/episode-72.md)
-- [Episode 73: The Vitality That Circulation Infuses](episodes/episode-73.md) (Newest)
+- [Episode 73: The Vitality That Circulation Infuses](episodes/episode-73.md)
+- [Episode 74: The Flowering That Vitality Unfolds](episodes/episode-74.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
