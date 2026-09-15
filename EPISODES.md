@@ -77,6 +77,7 @@
 - [Episode 73: The Vitality That Circulation Infuses](episodes/episode-73.md)
 - [Episode 74: The Flowering That Vitality Unfolds](episodes/episode-74.md)
 - [Episode 75: The Seed That the Flowering Releases](episodes/episode-75.md)
-- [Episode 76: The Germination That the Seed Begins](episodes/episode-76.md) (Newest)
+- [Episode 76: The Germination That the Seed Begins](episodes/episode-76.md)
+- [Episode 77: The Sprouting That the Germination Unveils](episodes/episode-77.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
