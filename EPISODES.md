@@ -80,6 +80,7 @@
 - [Episode 76: The Germination That the Seed Begins](episodes/episode-76.md)
 - [Episode 77: The Sprouting That the Germination Unveils](episodes/episode-77.md)
 - [Episode 78: The Unfurling That the Sprouting Opens](episodes/episode-78.md)
-- [Episode 79: The Canopy That the Unfurling Spreads](episodes/episode-79.md) (Newest)
+- [Episode 79: The Canopy That the Unfurling Spreads](episodes/episode-79.md)
+- [Episode 80: The Understory That the Canopy Nurtures](episodes/episode-80.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
