@@ -84,6 +84,7 @@
 - [Episode 80: The Understory That the Canopy Nurtures](episodes/episode-80.md)
 - [Episode 81: The Mycelium That the Understory Weaves](episodes/episode-81.md)
 - [Episode 82: The Fruiting That the Mycelium Raises](episodes/episode-82.md)
-- [Episode 83: The Spores That the Fruiting Releases](episodes/episode-83.md) (Newest)
+- [Episode 83: The Spores That the Fruiting Releases](episodes/episode-83.md)
+- [Episode 84: The Soft Landing That the Spores Find](episodes/episode-84.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
