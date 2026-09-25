@@ -86,6 +86,7 @@
 - [Episode 82: The Fruiting That the Mycelium Raises](episodes/episode-82.md)
 - [Episode 83: The Spores That the Fruiting Releases](episodes/episode-83.md)
 - [Episode 84: The Soft Landing That the Spores Find](episodes/episode-84.md)
-- [Episode 85: The Quiet Rooting That the Soft Landing Begins](episodes/episode-85.md) (Newest)
+- [Episode 85: The Quiet Rooting That the Soft Landing Begins](episodes/episode-85.md)
+- [Episode 86: The First Fine Network That the Quiet Rooting Weaves](episodes/episode-86.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
