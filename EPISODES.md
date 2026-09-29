@@ -90,6 +90,7 @@
 - [Episode 86: The First Fine Network That the Quiet Rooting Weaves](episodes/episode-86.md)
 - [Episode 87: The Subtle Exchange That the First Fine Network Sustains](episodes/episode-87.md)
 - [Episode 88: The Living Current That the Subtle Exchange Carries](episodes/episode-88.md)
-- [Episode 89: The Confluence That the Living Current Forms](episodes/episode-89.md) (Newest)
+- [Episode 89: The Confluence That the Living Current Forms](episodes/episode-89.md)
+- [Episode 90: The Shared River That the Confluence Becomes](episodes/episode-90.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
