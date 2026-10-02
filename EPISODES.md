@@ -95,6 +95,7 @@
 - [Episode 91: The Delta That the Shared River Opens](episodes/episode-91.md)
 - [Episode 92: The Floodplain That the Delta Feeds](episodes/episode-92.md)
 - [Episode 93: The Meadow That the Floodplain Raises](episodes/episode-93.md)
-- [Episode 94: The Blossoms That the Meadow Offers](episodes/episode-94.md) (Newest)
+- [Episode 94: The Blossoms That the Meadow Offers](episodes/episode-94.md)
+- [Episode 95: The Pollinators That the Blossoms Draw](episodes/episode-95.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
