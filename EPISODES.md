@@ -99,6 +99,7 @@
 - [Episode 95: The Pollinators That the Blossoms Draw](episodes/episode-95.md)
 - [Episode 96: The Pollen That the Pollinators Carry](episodes/episode-96.md)
 - [Episode 97: The Fruit That the Carried Pollen Sets](episodes/episode-97.md)
-- [Episode 98: The Ripening That the Set Fruit Undertakes](episodes/episode-98.md) (Newest)
+- [Episode 98: The Ripening That the Set Fruit Undertakes](episodes/episode-98.md)
+- [Episode 99: The Sharing That the Ripened Fruit Invites](episodes/episode-99.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
