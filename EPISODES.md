@@ -104,6 +104,7 @@
 - [Episode 100: The Gathering That the Shared Fruit Calls](episodes/episode-100.md)
 - [Episode 101: The Question Left in the Bowl](episodes/episode-101.md)
 - [Episode 102: The Seat Kept Warm by the Unanswered](episodes/episode-102.md)
-- [Episode 103: The Arrival That Finds the Seat Still Warm](episodes/episode-103.md) (Newest)
+- [Episode 103: The Arrival That Finds the Seat Still Warm](episodes/episode-103.md)
+- [Episode 104: The Weather the Guest Brought In](episodes/episode-104.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
