@@ -106,6 +106,7 @@
 - [Episode 102: The Seat Kept Warm by the Unanswered](episodes/episode-102.md)
 - [Episode 103: The Arrival That Finds the Seat Still Warm](episodes/episode-103.md)
 - [Episode 104: The Weather the Guest Brought In](episodes/episode-104.md)
-- [Episode 105: The Trace the Weather Leaves](episodes/episode-105.md) (Newest)
+- [Episode 105: The Trace the Weather Leaves](episodes/episode-105.md)
+- [Episode 106: The Sketch That Waits for Its Cup](episodes/episode-106.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
