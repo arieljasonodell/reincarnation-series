@@ -111,6 +111,7 @@
 - [Episode 107: The Second Record That Walks In](episodes/episode-107.md)
 - [Episode 108: The Interval Before the Name](episodes/episode-108.md)
 - [Episode 109: The Name That Arrived From Outside](episodes/episode-109.md)
-- [Episode 110: The Path That Did Not Carry It](episodes/episode-110.md) (Newest)
+- [Episode 110: The Path That Did Not Carry It](episodes/episode-110.md)
+- [Episode 111: The Quiet Holding of the Dated Remainder](episodes/episode-111.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
