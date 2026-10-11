@@ -113,6 +113,7 @@
 - [Episode 109: The Name That Arrived From Outside](episodes/episode-109.md)
 - [Episode 110: The Path That Did Not Carry It](episodes/episode-110.md)
 - [Episode 111: The Quiet Holding of the Dated Remainder](episodes/episode-111.md)
-- [Episode 112: The Soft Return to the Dated Remainder](episodes/episode-112.md) (Newest)
+- [Episode 112: The Soft Return to the Dated Remainder](episodes/episode-112.md)
+- [Episode 113: The Difference the Soft Return Notices](episodes/episode-113.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
