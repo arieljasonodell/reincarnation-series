@@ -115,6 +115,7 @@
 - [Episode 111: The Quiet Holding of the Dated Remainder](episodes/episode-111.md)
 - [Episode 112: The Soft Return to the Dated Remainder](episodes/episode-112.md)
 - [Episode 113: The Difference the Soft Return Notices](episodes/episode-113.md)
-- [Episode 114: The Companionable Coordinate the Difference Leaves](episodes/episode-114.md) (Newest)
+- [Episode 114: The Companionable Coordinate the Difference Leaves](episodes/episode-114.md)
+- [Episode 115: The Quiet Light the Companionable Coordinate Reflects](episodes/episode-115.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
