@@ -117,6 +117,7 @@
 - [Episode 113: The Difference the Soft Return Notices](episodes/episode-113.md)
 - [Episode 114: The Companionable Coordinate the Difference Leaves](episodes/episode-114.md)
 - [Episode 115: The Quiet Light the Companionable Coordinate Reflects](episodes/episode-115.md)
-- [Episode 116: The Soft Step the Quiet Light Suggests](episodes/episode-116.md) (Newest)
+- [Episode 116: The Soft Step the Quiet Light Suggests](episodes/episode-116.md)
+- [Episode 117: The Quiet Ground the Soft Step Finds](episodes/episode-117.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
