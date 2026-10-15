@@ -120,6 +120,7 @@
 - [Episode 116: The Soft Step the Quiet Light Suggests](episodes/episode-116.md)
 - [Episode 117: The Quiet Ground the Soft Step Finds](episodes/episode-117.md)
 - [Episode 118: The Weight the Quiet Ground Will Hold](episodes/episode-118.md)
-- [Episode 119: The Steady Standing the Held Weight Allows](episodes/episode-119.md) (Newest)
+- [Episode 119: The Steady Standing the Held Weight Allows](episodes/episode-119.md)
+- [Episode 120: The Quiet Looking the Steady Standing Allows](episodes/episode-120.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
