@@ -122,6 +122,7 @@
 - [Episode 118: The Weight the Quiet Ground Will Hold](episodes/episode-118.md)
 - [Episode 119: The Steady Standing the Held Weight Allows](episodes/episode-119.md)
 - [Episode 120: The Quiet Looking the Steady Standing Allows](episodes/episode-120.md)
-- [Episode 121: The Soft Detail the Quiet Looking Finds](episodes/episode-121.md) (Newest)
+- [Episode 121: The Soft Detail the Quiet Looking Finds](episodes/episode-121.md)
+- [Episode 122: The Quiet Recognition the Soft Detail Invites](episodes/episode-122.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
