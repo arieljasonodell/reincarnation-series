@@ -125,6 +125,7 @@
 - [Episode 121: The Soft Detail the Quiet Looking Finds](episodes/episode-121.md)
 - [Episode 122: The Quiet Recognition the Soft Detail Invites](episodes/episode-122.md)
 - [Episode 123: The Soft Settlement the Quiet Recognition Allows](episodes/episode-123.md)
-- [Episode 124: The Quiet Continuance the Soft Settlement Permits](episodes/episode-124.md) (Newest)
+- [Episode 124: The Quiet Continuance the Soft Settlement Permits](episodes/episode-124.md)
+- [Episode 125: The Soft Presence the Quiet Continuance Reveals](episodes/episode-125.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
