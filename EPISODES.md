@@ -127,6 +127,7 @@
 - [Episode 123: The Soft Settlement the Quiet Recognition Allows](episodes/episode-123.md)
 - [Episode 124: The Quiet Continuance the Soft Settlement Permits](episodes/episode-124.md)
 - [Episode 125: The Soft Presence the Quiet Continuance Reveals](episodes/episode-125.md)
-- [Episode 126: The Gentle Companionship the Soft Presence Offers](episodes/episode-126.md) (Newest)
+- [Episode 126: The Gentle Companionship the Soft Presence Offers](episodes/episode-126.md)
+- [Episode 127: The Quiet Shared Walking the Gentle Companionship Permits](episodes/episode-127.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
