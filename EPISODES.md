@@ -131,6 +131,7 @@
 - [Episode 127: The Quiet Shared Walking the Gentle Companionship Permits](episodes/episode-127.md)
 - [Episode 128: The Mutual Rhythm the Quiet Shared Walking Discovers](episodes/episode-128.md)
 - [Episode 129: The Soft Attunement the Mutual Rhythm Permits](episodes/episode-129.md)
-- [Episode 130: The Quiet Resonance the Soft Attunement Reveals](episodes/episode-130.md) (Newest)
+- [Episode 130: The Quiet Resonance the Soft Attunement Reveals](episodes/episode-130.md)
+- [Episode 131: The Soft Echo the Quiet Resonance Returns](episodes/episode-131.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
