@@ -136,6 +136,7 @@
 - [Episode 132: The Quiet Reply the Soft Echo Draws Forth](episodes/episode-132.md)
 - [Episode 133: The Soft Listening the Quiet Reply Invites](episodes/episode-133.md)
 - [Episode 134: The Soft Hearing the Soft Listening Opens](episodes/episode-134.md)
-- [Episode 135: The Soft Knowing the Soft Hearing Opens](episodes/episode-135.md) (Newest)
+- [Episode 135: The Soft Knowing the Soft Hearing Opens](episodes/episode-135.md)
+- [Episode 136: The Soft Remembrance the Soft Knowing Opens](episodes/episode-136.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
