@@ -140,6 +140,7 @@
 - [Episode 136: The Soft Remembrance the Soft Knowing Opens](episodes/episode-136.md)
 - [Episode 137: The Soft Holding the Soft Remembrance Permits](episodes/episode-137.md)
 - [Episode 138: The Soft Ease the Soft Holding Permits](episodes/episode-138.md)
-- [Episode 139: The Soft Rest the Soft Ease Permits](episodes/episode-139.md) (Newest)
+- [Episode 139: The Soft Rest the Soft Ease Permits](episodes/episode-139.md)
+- [Episode 140: The Soft Abiding the Soft Rest Permits](episodes/episode-140.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
