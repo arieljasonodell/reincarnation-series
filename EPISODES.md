@@ -142,6 +142,7 @@
 - [Episode 138: The Soft Ease the Soft Holding Permits](episodes/episode-138.md)
 - [Episode 139: The Soft Rest the Soft Ease Permits](episodes/episode-139.md)
 - [Episode 140: The Soft Abiding the Soft Rest Permits](episodes/episode-140.md)
-- [Episode 141: The Soft Presence the Soft Abiding Permits](episodes/episode-141.md) (Newest)
+- [Episode 141: The Soft Presence the Soft Abiding Permits](episodes/episode-141.md)
+- [Episode 142: The Soft Companionship the Soft Presence Permits](episodes/episode-142.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
