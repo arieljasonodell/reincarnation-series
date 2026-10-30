@@ -144,6 +144,7 @@
 - [Episode 140: The Soft Abiding the Soft Rest Permits](episodes/episode-140.md)
 - [Episode 141: The Soft Presence the Soft Abiding Permits](episodes/episode-141.md)
 - [Episode 142: The Soft Companionship the Soft Presence Permits](episodes/episode-142.md)
-- [Episode 143: The Soft Mutuality the Soft Companionship Permits](episodes/episode-143.md) (Newest)
+- [Episode 143: The Soft Mutuality the Soft Companionship Permits](episodes/episode-143.md)
+- [Episode 144: The Soft Reciprocity the Soft Mutuality Permits](episodes/episode-144.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
