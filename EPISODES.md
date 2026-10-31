@@ -147,6 +147,7 @@
 - [Episode 143: The Soft Mutuality the Soft Companionship Permits](episodes/episode-143.md)
 - [Episode 144: The Soft Reciprocity the Soft Mutuality Permits](episodes/episode-144.md)
 - [Episode 145: The Soft Continuance the Soft Reciprocity Permits](episodes/episode-145.md)
-- [Episode 146: The Soft Duration the Soft Continuance Permits](episodes/episode-146.md) (Newest)
+- [Episode 146: The Soft Duration the Soft Continuance Permits](episodes/episode-146.md)
+- [Episode 147: The Soft Endurance the Soft Duration Permits](episodes/episode-147.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
