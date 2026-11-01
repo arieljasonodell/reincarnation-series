@@ -149,6 +149,8 @@
 - [Episode 145: The Soft Continuance the Soft Reciprocity Permits](episodes/episode-145.md)
 - [Episode 146: The Soft Duration the Soft Continuance Permits](episodes/episode-146.md)
 - [Episode 147: The Soft Endurance the Soft Duration Permits](episodes/episode-147.md)
-- [Episode 148: The Soft Persistence the Soft Endurance Permits](episodes/episode-148.md) (Newest)
+- [Episode 148: The Soft Persistence the Soft Endurance Permits](episodes/episode-148.md)
+
+- [Episode 149: The Soft Steadiness the Soft Persistence Permits](episodes/episode-149.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
