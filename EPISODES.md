@@ -152,6 +152,7 @@
 - [Episode 148: The Soft Persistence the Soft Endurance Permits](episodes/episode-148.md)
 - [Episode 149: The Soft Steadiness the Soft Persistence Permits](episodes/episode-149.md)
 - [Episode 150: The Soft Constancy the Soft Steadiness Permits](episodes/episode-150.md)
-- [Episode 151: The Soft Reliability the Soft Constancy Permits](episodes/episode-151.md) (Newest)
+- [Episode 151: The Soft Reliability the Soft Constancy Permits](episodes/episode-151.md)
+- [Episode 152: The Soft Trust the Soft Reliability Permits](episodes/episode-152.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
