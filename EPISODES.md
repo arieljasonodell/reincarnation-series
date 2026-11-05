@@ -156,6 +156,7 @@
 - [Episode 152: The Soft Trust the Soft Reliability Permits](episodes/episode-152.md)
 - [Episode 153: The Soft Openness the Soft Trust Permits](episodes/episode-153.md)
 - [Episode 154: The Soft Receptivity the Soft Openness Permits](episodes/episode-154.md)
-- [Episode 155: The Soft Availability the Soft Receptivity Permits](episodes/episode-155.md) (Newest)
+- [Episode 155: The Soft Availability the Soft Receptivity Permits](episodes/episode-155.md)
+- [Episode 156: The Soft Readiness the Soft Availability Permits](episodes/episode-156.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
