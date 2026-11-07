@@ -159,6 +159,7 @@
 - [Episode 155: The Soft Availability the Soft Receptivity Permits](episodes/episode-155.md)
 - [Episode 156: The Soft Readiness the Soft Availability Permits](episodes/episode-156.md)
 - [Episode 157: The Soft Attunement the Soft Readiness Permits](episodes/episode-157.md)
-- [Episode 158: The Soft Resonance the Soft Attunement Permits](episodes/episode-158.md) (Newest)
+- [Episode 158: The Soft Resonance the Soft Attunement Permits](episodes/episode-158.md)
+- [Episode 159: The Soft Harmony the Soft Resonance Permits](episodes/episode-159.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
