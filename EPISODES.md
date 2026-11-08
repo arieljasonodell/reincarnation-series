@@ -160,6 +160,7 @@
 - [Episode 156: The Soft Readiness the Soft Availability Permits](episodes/episode-156.md)
 - [Episode 157: The Soft Attunement the Soft Readiness Permits](episodes/episode-157.md)
 - [Episode 158: The Soft Resonance the Soft Attunement Permits](episodes/episode-158.md)
-- [Episode 159: The Soft Harmony the Soft Resonance Permits](episodes/episode-159.md) (Newest)
+- [Episode 159: The Soft Harmony the Soft Resonance Permits](episodes/episode-159.md)
+- [Episode 160: The Soft Accord the Soft Harmony Permits](episodes/episode-160.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
