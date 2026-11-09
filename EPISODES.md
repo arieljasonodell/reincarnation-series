@@ -163,7 +163,8 @@
 - [Episode 159: The Soft Harmony the Soft Resonance Permits](episodes/episode-159.md)
 - [Episode 160: The Soft Accord the Soft Harmony Permits](episodes/episode-160.md)
 - [Episode 161: The Soft Continuum the Soft Accord Permits](episodes/episode-161.md)
+- [Episode 162: The Soft Ongoingness the Soft Continuum Permits](episodes/episode-162.md)
 
-- [Episode 162: The Soft Ongoingness the Soft Continuum Permits](episodes/episode-162.md) (Newest)
+- [Episode 163: The Soft Witnessing the Soft Ongoingness Permits](episodes/episode-163.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
