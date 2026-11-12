@@ -168,6 +168,7 @@
 - [Episode 164: The Soft Attention the Soft Witnessing Permits](episodes/episode-164.md)
 - [Episode 165: The Soft Clarity the Soft Attention Permits](episodes/episode-165.md)
 - [Episode 166: The Soft Knowing the Soft Clarity Permits](episodes/episode-166.md)
-- [Episode 167: The Soft Wonder the Soft Knowing Permits](episodes/episode-167.md) (Newest)
+- [Episode 167: The Soft Wonder the Soft Knowing Permits](episodes/episode-167.md)
+- [Episode 168: The Soft Awe the Soft Wonder Permits](episodes/episode-168.md) (Newest)
 
 Continue the exploration with Ariel on soul journeys, pattern recognition, reincarnation evidence, and purpose in this time.
